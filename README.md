@@ -1,7 +1,7 @@
 # INFO
 
 ## BYI (before you interact)
->  -  **Boundaries can be found in my [pronouns page](https://en.pronouns.page/@taiyaraiya), however if something isn't listed there, you can always ask me personally**
+>  -  **Boundaries can be found in my [Pronouns Page](https://en.pronouns.page/@taiyaraiya), however if something isn't listed there, you can always ask me personally**
 >  I'm often very loose on ways of being adressed, as I don't really mind much. As long as you stay respectful, you're most likely in the clear!
 >  -  **My [StrawPage](https://taiyaraiya.straw.page/) is mainly themed around some of my interests, feel free to send me a note or drawing even if you're just passing by!**
 >   If we happen to share some things you also like, give me a PM in-game ..
