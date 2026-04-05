@@ -13,4 +13,3 @@
 >  -  **Other**  ➜  Hetalia, Hollow Knight, Cold War, Art (Architecture, Fashion, Graphic design)
 
 -  TBA ..
-![me](chibirus.webp)  ![twin](chibiame.webp)
