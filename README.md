@@ -13,10 +13,9 @@
 >  -  **Other**  ➜  Hetalia, Hollow Knight, Cold War, Art (Architecture, Fashion, Graphic design)
 
 ## EXTRA
->  -  mooties @ethereal-hell, @Flyingdragoncorn <3
+>  -  @ethereal-hell, @Flyingdragoncorn <3
 
 
 
 
-
--  TBA ..
+TBA ..
