@@ -10,7 +10,7 @@
 ## INTERESTS (in no particular order)
 >  -  **Minecraft**  ➜  Life Series, Hermitcraft, Unstable Universe, STATE (2.0, 2.5, 2.7), Decayed & Decrepit
 >  -  **Roblox**  ➜  Block Tales, SEWH, A Nostalgic Hangout Game, ORISON, Pupi Midnight Munchies
->  -  **Other**  ➜  Hetalia, Hollow Knight, Cold War, Art (Architecture, Fashion, Graphic design)
+>  -  **Other**  ➜  FNaF, Hetalia, Hollow Knight, Cold War, Art (Architecture, Fashion, Graphic design)
 
 ## EXTRA
 >  -  @ethereal-hell, @Flyingdragoncorn <3
